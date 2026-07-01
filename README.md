@@ -15,4 +15,4 @@
 - Dashboard Development
 
 ## Connect With Me
-LinkedIn: www.linkedin.com/in/aayush-malik-425606276
+LinkedIn: www.linkedin.com/in/aayush-malik12
